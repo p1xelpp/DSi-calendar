@@ -13,3 +13,6 @@ or you can just scan this qr code i think:
 
 
 ![QR CODE HERE LOL](qr-code.jpg)
+
+
+OR JUST PUT THE NDS FILE ON UR DSI SD CARD OF COURSE
